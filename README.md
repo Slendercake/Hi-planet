@@ -1,2 +1,2 @@
 # Hi-planet
-Hi dudes, Ijust want to study develop some interesting things
+Hi dudes, I just want to study develop some interesting things
